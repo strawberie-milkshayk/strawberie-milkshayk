@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @strawberie-milkshayk
+- discord: strawberie🌸#0313
